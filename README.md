@@ -12,5 +12,4 @@ alurastartestudante@email.com
 ##
 
 
-![]https://media1.tenor.com/m/eohR5Pkyr7gAAAAd/arrascaeta-arrascaeta-libertadores.gif
-
+https://media1.tenor.com/m/eohR5Pkyr7gAAAAd/arrascaeta-arrascaeta-libertadores.gif
